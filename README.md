@@ -5,3 +5,6 @@
 - Tenham um dia magnífico despois de verem minhas ideias 😸
 - Bye, Bye 👋.
 - 
+
+
+https://images.app.goo.gl/DNE3imCkoYohN3A3A
